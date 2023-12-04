@@ -26,6 +26,6 @@ Sua contribuição é bem-vinda! Se você tem sugestões para melhorar os labora
 ## Contato
 Para solicitar os arquivos de roteiro, por favor entre em contato por e-mail.
 
-Felipe Ferreira- [Felipe Ferreira](mailto:eng.email@dominio.com)
+Felipe Ferreira- [Felipe Ferreira](mailto:eng.ffn@gmail.com)
 
 
